@@ -1,0 +1,1 @@
+# Funci-n-Cuadr-tica
